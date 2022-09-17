@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @fairbiz
-i like loona
+just 4 fun
 
 <!---
 fairbiz/fairbiz is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
